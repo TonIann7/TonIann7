@@ -11,7 +11,7 @@
 😄 Pronouns: He/him
 
 ⚡ Fun fact:
-Mom asked me to buy a liter of milk and, if available, six eggs. 
+Mom asked me to buy a liter of milk and if they have eggs, get six...
 I returned with six liters of milk, and she asked me in surprise, "Why did you buy six liters of milk?" 
 And I replied, "Because they had eggs!"
 
